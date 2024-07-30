@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Bovo
+-  I’m interested in learn
+-  I’m currently learning how it works here
+- 💞️ I’m looking to collaborate i don`t know
+- 📫 How to reach me don´t  arrive
+-  Pronouns: she
+- 😄 Fun fact: do not exist
